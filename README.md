@@ -7,6 +7,4 @@
 lam create Yaznbook(https://yaznbook.com)
 
 Thank You Read My profile 👍
- م
-م شة
- حث
+ ح
